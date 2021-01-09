@@ -1,1 +1,5 @@
-https://m.gjcdn.net/user-header/1300/4218021-taprizrb-v4.webp
+# ----------------------------------
+# 👋 Hi
+▶️ Gamejolt : https://gamejolt.com/@Yasin_G <br>
+▶️ Discord : CyberMenace#9999 <br>
+# ----------------------------------
